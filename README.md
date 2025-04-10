@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 - email bestsanga123@gmail.com
-- phone +255743906101
-- ig @best__bryaiton
+- phone +255618002662
+- ig @best_bryaiton
 
 <!---
 bestbryaiton/bestbryaiton is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
